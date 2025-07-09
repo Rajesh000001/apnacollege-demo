@@ -1,3 +1,3 @@
 # apnacollege-demo
 <br>
-Author- RAJESH KUMAR MAHATO
+Author- RAJESH  MAHATO
